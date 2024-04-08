@@ -1,1 +1,1 @@
-Project quoted from akshaybhatia10        
+Project quoted from @akshaybhatia10        
